@@ -1,1 +1,1 @@
-# https-sedirr.github.io-biaobai-
+https://sedirr.github.io/bbai/
